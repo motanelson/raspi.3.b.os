@@ -1,1 +1,1 @@
-Hello word go language video
+https://www.youtube.com/live/kZqGsoeP0kU?si=KZmb8vj9WXltPdFi
